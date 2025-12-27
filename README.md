@@ -4,9 +4,11 @@
 #
 <🪃・🦘>
 #
-[<https://drive.google.com/file/d/1gty1VZpLktUqB5oakDrA7v8nJYpd0RgD/view?usp=drivesdk・||・[🔐](https://drive.google.com/file/d/1mHzFv_0GcfPrtPSvSpF2sk9Vz6XZdq9k/view?usp=drivesdk)>]
+[<https://drive.google.com/file/d/1gty1VZpLktUqB5oakDrA7v8nJYpd0RgD/view?usp=drivesdk
+<\>
+https://drive.google.com/file/d/1mHzFv_0GcfPrtPSvSpF2sk9Vz6XZdq9k/view?usp=drivesdk)>]
 #
-iDK
+i[Sd]DK
 <\>
 I would NOT open that file... ups, too late 👋😏・😒👊
 __azure🫗__
