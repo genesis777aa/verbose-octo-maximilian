@@ -1,5 +1,5 @@
 // readme.ts
-// 2511 placeholder bookmark ~
+// 2511 placeholder bookmark ~ 🚜🖲️
 // src sha/index: 1912cd7465ce089aeefe8c5413e17dc67f0650b3
 
 // This TypeScript readme exports a small set of constants and templates:
