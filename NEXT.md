@@ -1,20 +1,14 @@
 # verbose-octo-maximilian
-// a gift for a Canadian top-Andi-climbin destination piks🐭(iChoose📇)
 #
 #
-<🪃・🦘>
+<🚜・♻️>
 #
-[<https://drive.google.com/file/d/1gty1VZpLktUqB5oakDrA7v8nJYpd0RgD/view?usp=drivesdk
+[<file_d/1gty1VZpLktUqB5oakDrA7v8nJYpd0RgD
+<\>1mHzFv_0GcfPrtPSvSpF2sk9Vz6XZdq9k)>]
+#
+i[Sd]DK🔩
 <\>
-https://drive.google.com/file/d/1mHzFv_0GcfPrtPSvSpF2sk9Vz6XZdq9k/view?usp=drivesdk)>]
-#
-i[Sd]DK
+//1912cd7465ce089aeefe8c5413e17dc67f0650b3
 <\>
-I would NOT open that file... ups, too late 👋😏・😒👊
-__azure🫗__
-<\>
-the webhook will later beeeee replaced with a single-placehold-file {24112025_2051xyzq}
+{31122025_172238}
 ##
-Še enKRat zajoka... GoddMorningDELUSIONS😎📼
-
-crknte pa na pocas, da bomo ‘uzival’ v THEATER 🎦🍿🥸🎃
